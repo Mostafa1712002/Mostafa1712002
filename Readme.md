@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mostafaibrahim1712002@gmail.com**
 
-- ⚡ Fun fact **code is best you can do it in the world**
+- ⚡ Fun fact **code is best thing , you can do it in the world**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
